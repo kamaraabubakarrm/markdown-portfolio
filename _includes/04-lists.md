@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+# <h1> Things i love
+  1. Programming
+  2. Networking
+  3. Researching
