@@ -1,4 +1,7 @@
-*Just can let it be this way
-_Can you imagine i have nailed it down
-**Just too believe in God and myself
-__There is nothing impossible to me
+*This is me*
+_I always believe in God_
+
+**He is the centre of my life**
+__There is nothing i can't do without him__
+
+_Bless **the Lord** ooo my soul_
